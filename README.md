@@ -1,5 +1,5 @@
 ![banner1](https://github.com/Ayezzah/app-dev/assets/168436827/dca72eea-174b-4701-9fbe-48f5a5690fb2)
-# Themes I Love in Series and Movies
+# ‧₊˚ ☁️⋅♡𓂃 ࣪ ִֶָ☾. Themes I Love in Series and Movies
 
 I am a girl who have a great love for series and movies that revolve around themes such as Greek mythology, detective mysteries, and literary inspirations. This is probably due to the fact that before I fell in love with TV series and movies, I was an avid reader of the same themes. In fact, I even finished the whole volume of books in relation to the said movies, since most of them are just adaptation of what I already read. With that, here's a glimpse into some of my favorite series and movies that embody these themes:
 
@@ -14,7 +14,7 @@ I am a girl who have a great love for series and movies that revolve around them
 # **Greek Mythology:**
 ![banner2](https://github.com/Ayezzah/app-dev/assets/168436827/9765a769-e472-4eb4-a3d4-f72e50fee004)
 
-### **Percy Jackson Series:** An original Book series by Rick Riordan
+### 🏛️🌊🔱🌿 **Percy Jackson Series:** An original Book series by Rick Riordan
 **Movies:** *Percy Jackson & the Olympians: The Lightning Thief*, *Percy Jackson: Sea of Monsters*
 - **General Characters:** Percy Jackson, Annabeth Chase, Grover Underwood
 - **Author:** Rick Riordan
@@ -28,7 +28,7 @@ I am a girl who have a great love for series and movies that revolve around them
 #### **Synopsis:**
 *Percy Jackson* is a modern retelling of Greek mythology, following the adventures of a young demigod, Percy Jackson, son of Poseidon, as he navigates the world of gods, monsters, and prophecies. With his friends, Percy embarks on quests to save the world and uncover the truth about his lineage.
 
-#### **Why I Love It:**
+#### 𓆩♡𓆪 **Why I Love It:**
 - *Percy Jackson* combines elements of Greek mythology with a contemporary setting, making it both educational and entertaining.
 - The series explores themes of friendship, bravery, and identity, resonating with audiences of all ages.
 - The Netflix adaptation promises to delve deeper into the rich world of Greek myths, offering fans a fresh perspective on the beloved characters.
@@ -46,7 +46,7 @@ I am a girl who have a great love for series and movies that revolve around them
 ![banner33](https://github.com/Ayezzah/app-dev/assets/168436827/cbf113bf-b8f6-476e-97d8-9aa63fbadd6d)
 
 
-### **Black Butler:**
+### 🤝✒️🗡️⏳ **Black Butler:**
 - **General Characters:** Ciel Phantomhive, Sebastian Michaelis, Grell Sutcliff
 - **Author:** Yana Toboso
 - [link for the anime](https://www.crunchyroll.com/series/GYQ43P3E6/black-butler)
@@ -54,11 +54,11 @@ I am a girl who have a great love for series and movies that revolve around them
 #### **Synopsis:**
 Set in Victorian England, *Black Butler* follows the exploits of Ciel Phantomhive, a young aristocrat who moonlights as the Queen's watchdog with the help of his demon butler, Sebastian. Each season protrays a different big sociatal issue that they represent, and it deals on how can they solve it meticulously. The series combines mystery, supernatural elements, and intricate plot twists.
 
-#### **Why I Love It:**
+#### 𓆩♡𓆪 **Why I Love It:**
 - *Black Butler* have varied societal issues that they try to solve in order to gain the Queen's trust, and I see that even the main character, Ciel has his own faults, which is in resorting to a wrong pact in order to get <mark>revenge<mark> that I, myself, used to do.
 - I also love how Sebastian was able to represent Ciel's inner demon.
 
-### **Moriarty the Patriot:**
+### 💼📎🔍⚖️ **Moriarty the Patriot:**
 - **General Characters:** William James Moriarty, Sherlock Holmes, John Watson
 - **Author:** Ryosuke Takeuchi, Hikaru Miyoshi (based on characters by Arthur Conan Doyle)
 - [link for the anime](https://www.crunchyroll.com/series/GXJHM379D/moriarty-the-patriot)
@@ -66,12 +66,12 @@ Set in Victorian England, *Black Butler* follows the exploits of Ciel Phantomhiv
 #### **Synopsis:**
 A reimagining of Arthur Conan Doyle's *Sherlock Holmes* stories, *Moriarty the Patriot* explores the origins of Sherlock's arch-nemesis, Professor James Moriarty, as he seeks justice in a corrupt society.
 
-#### **Why I Love It:**
+#### 𓆩♡𓆪 **Why I Love It:**
 - *Moriarty he Patriot* sees the objective of the villain in the story, because unlike Shrlock Holmes, they focused more on his enemy as a protagonist-antagonist which is James Moriarty.
 - I also love how Moriarty managed to come up with an evil-like plan which is to make himself an enemy, for the sake of breaking the social class segregation back them.
 - It features how Marxist ideation can be achieved, but with twisted solutions. 
 
-### **Bungo Stray Dogs:**
+### 📌📖🖋️📜 **Bungo Stray Dogs:**
 - **General Characters:** Atsushi Nakajima, Osamu Dazai, Doppo Kunikida
 - **Author:** Kafka Asagiri
 - [link for the anime](https://www.crunchyroll.com/series/GR5VXQ8PR/bungo-stray-dogs)
@@ -79,7 +79,7 @@ A reimagining of Arthur Conan Doyle's *Sherlock Holmes* stories, *Moriarty the P
 #### **Synopsis:**
 *Bungo Stray Dogs* features a cast of characters with supernatural abilities based on famous literary figures, including Osamu Dazai, who wrote *No Longer Human*. The series follows a group of detectives with extraordinary powers as they solve mysteries and confront their own pasts.
 
-#### **Why I Love It:**
+#### 𓆩♡𓆪 **Why I Love It:**
 - *Bungo Stray Dogs* character which is named Dazai is nspired by the real-life author Osamu Dazai, who penned the acclaimed novel *No Longer Human*, *Bungo Stray Dogs* pays homage to Dazai's literary legacy while weaving an original tale of mystery and intrigue.
 - I also love how each characters represent a real life Japanese Classic Authors like Natsumi Soseki and Edogawa Ranpo.
 - It features how they converted the character's notable classic books into a power.
@@ -93,6 +93,6 @@ A reimagining of Arthur Conan Doyle's *Sherlock Holmes* stories, *Moriarty the P
 | Bungo Stray Dogs       | ✔️               | ✔️                         | ✔️                      | ❌            | ✔️           |
 
 ╰┈➤
-# **To sum up:**
+# ‧₊˚ ☁️⋅♡𓂃 ࣪ ִֶָ☾. **To sum up:**
 ![banner4](https://github.com/Ayezzah/app-dev/assets/168436827/2ce8cbaa-06ac-4090-9680-19158326d004)
 These series and movies captivate me with their engaging storytelling, diverse characters, and creative interpretations of mythology and literature. I hope that you can enjoy them as well since they are not just a mere movie or series; they are stories that has been artistically painted through literary words that managed to leap from the bounds of the books into a visual memory.
