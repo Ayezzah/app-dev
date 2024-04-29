@@ -10,7 +10,9 @@ I am a girl who have a great love for series and movies that revolve around them
 | Greek Mythology     | 1. Percy Jackson & the Olympians: The Lightning Thief <br> 2. Percy Jackson: Sea of Monsters <br> 3. Percy  Jackson and the Olympians (Netflix) |
 | Detective & Writing | 1. Black Butler <br> 2. Moriarty the Patriot <br> 3. Bungo Stray Dogs                                             |
 
-## **Greek Mythology:**
+╰┈➤
+# **Greek Mythology:**
+![banner2](https://github.com/Ayezzah/app-dev/assets/168436827/9765a769-e472-4eb4-a3d4-f72e50fee004)
 
 ### **Percy Jackson Series:** An original Book series by Rick Riordan
 **Movies:** *Percy Jackson & the Olympians: The Lightning Thief*, *Percy Jackson: Sea of Monsters*
@@ -31,9 +33,7 @@ I am a girl who have a great love for series and movies that revolve around them
 - The series explores themes of friendship, bravery, and identity, resonating with audiences of all ages.
 - The Netflix adaptation promises to delve deeper into the rich world of Greek myths, offering fans a fresh perspective on the beloved characters.
 
-# Movie Comparison:
-
-## Greek Mythology Movies/Series:
+## Comparison of Greek Mythology Movies/Series:
 
 | Movie                                     | Modern Retelling | Adventure-packed | Faithful Adaptation |
 |-------------------------------------------|------------------|------------------|---------------------|
@@ -41,7 +41,10 @@ I am a girl who have a great love for series and movies that revolve around them
 | Percy Jackson: Sea of Monsters            | ✔️             | ✔️             | ❌                 |
 | Percy Jackson and the Olympians (Netflix) | ❌             | ✔️             | ✔️                 |
 
-## **Anime with Detective and Writer Themes:**
+╰┈➤
+# **Anime with Detective and Writer Themes:**
+![banner33](https://github.com/Ayezzah/app-dev/assets/168436827/cbf113bf-b8f6-476e-97d8-9aa63fbadd6d)
+
 
 ### **Black Butler:**
 - **General Characters:** Ciel Phantomhive, Sebastian Michaelis, Grell Sutcliff
@@ -81,7 +84,7 @@ A reimagining of Arthur Conan Doyle's *Sherlock Holmes* stories, *Moriarty the P
 - I also love how each characters represent a real life Japanese Classic Authors like Natsumi Soseki and Edogawa Ranpo.
 - It features how they converted the character's notable classic books into a power.
   
-# Movie Comparison:
+## Movie Comparison:
 
 ## Detective & Writing-themed Movies/Series:
 
@@ -91,6 +94,7 @@ A reimagining of Arthur Conan Doyle's *Sherlock Holmes* stories, *Moriarty the P
 | Moriarty the Patriot   | ✔️               | ✔️                         | ❌                      | ✔️            | ❌           |
 | Bungo Stray Dogs       | ✔️               | ✔️                         | ✔️                      | ❌            | ✔️           |
 
-
-
-These series and movies captivate me with their engaging storytelling, diverse characters, and creative interpretations of mythology and literature.
+╰┈➤
+# **To sum up:**
+![banner4](https://github.com/Ayezzah/app-dev/assets/168436827/2ce8cbaa-06ac-4090-9680-19158326d004)
+These series and movies captivate me with their engaging storytelling, diverse characters, and creative interpretations of mythology and literature. I hope that you can enjoy them as well since they are not just a mere movie or series; they are stories that has been artistically painted through literary words that managed to leap from the bounds of the books into a visual memory.
