@@ -93,6 +93,6 @@ A reimagining of Arthur Conan Doyle's *Sherlock Holmes* stories, *Moriarty the P
 | Bungo Stray Dogs       | ✔️               | ✔️                         | ✔️                      | ❌            | ✔️           |
 
 ╰┈➤
-# ‧₊˚ ☁️⋅♡𓂃 ࣪ ִֶָ☾. **To sum up:**
+# ✧˖°𓂃☾ **To sum up:**
 ![banner4](https://github.com/Ayezzah/app-dev/assets/168436827/2ce8cbaa-06ac-4090-9680-19158326d004)
 These series and movies captivate me with their engaging storytelling, diverse characters, and creative interpretations of mythology and literature. I hope that you can enjoy them as well since they are not just a mere movie or series; they are stories that has been artistically painted through literary words that managed to leap from the bounds of the books into a visual memory.
