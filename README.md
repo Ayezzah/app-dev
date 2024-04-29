@@ -1,3 +1,4 @@
+![banner1](https://github.com/Ayezzah/app-dev/assets/168436827/dca72eea-174b-4701-9fbe-48f5a5690fb2)
 # Themes I Love in Series and Movies
 
 I am a girl who have a great love for series and movies that revolve around themes such as Greek mythology, detective mysteries, and literary inspirations. This is probably due to the fact that before I fell in love with TV series and movies, I was an avid reader of the same themes. In fact, I even finished the whole volume of books in relation to the said movies, since most of them are just adaptation of what I already read. With that, here's a glimpse into some of my favorite series and movies that embody these themes:
