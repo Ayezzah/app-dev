@@ -84,9 +84,7 @@ A reimagining of Arthur Conan Doyle's *Sherlock Holmes* stories, *Moriarty the P
 - I also love how each characters represent a real life Japanese Classic Authors like Natsumi Soseki and Edogawa Ranpo.
 - It features how they converted the character's notable classic books into a power.
   
-## Movie Comparison:
-
-## Detective & Writing-themed Movies/Series:
+## Comparison of Detective & Writing-themed Movies/Series:
 
 | Movie                  | Intriguing Blend | Well-developed Characters | Compelling Reimagining | Pacing Issues | Comedy Focus |
 |------------------------|------------------|----------------------------|-------------------------|---------------|--------------|
